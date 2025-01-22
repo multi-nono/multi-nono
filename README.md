@@ -4,7 +4,7 @@
 - 📫 How to reach me multinono123@gmail.com
 - 😄 Pronouns: Nono nonobulol nonobuyt nono_le_boss multi_nino
 -  i'm the admin of Utopia a cool multicraft server (soon on minetest)
-- my bday is <t:1764284400:R>
+- my bday is the 28 november... :D
 
 <!---
 multi-nono/multi-nono is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
